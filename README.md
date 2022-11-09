@@ -1,0 +1,1 @@
+# patazone-privacy-policy
